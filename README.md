@@ -1,16 +1,13 @@
-### Hi there 👋
+![](https://i.postimg.cc/NMvSPGQd/Untitled330-20240228232023.png)
 
-<!--
-**yurinitram/yurinitram** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">cuddle + hide + whisper / interact + inspo is always okay. i dont bite</p>
 
-Here are some ideas to get you started:
+<p align="center">not a kin / irl dont refer to me as such</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">read my bundlr its sick as hell </p>
+
+<p align="center">proship / freaks dni </p>
+
+　　　　　　　　　　　　　　　　　　　　　　　　　![](https://64.media.tumblr.com/31019cec5fda099519c3e6829ff253d2/5fed3d4ee40f3b6a-fd/s1280x1920/931dde43aeaa5dc0c847e465c050c8fa259b9d74.gifv)
+
+![](https://i.postimg.cc/cC2QXCSH/Untitled330-20240228232027.png)
