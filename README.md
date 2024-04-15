@@ -8,6 +8,8 @@
 
 <p align="center">Proship / freaks dni </p>
 
+<p align="center"> @ultdirk smells like BO and salt water. </p>
+
 　　　　　　　　　　　　　　　　　　　　　　　　　![](https://64.media.tumblr.com/31019cec5fda099519c3e6829ff253d2/5fed3d4ee40f3b6a-fd/s1280x1920/931dde43aeaa5dc0c847e465c050c8fa259b9d74.gifv)
 
 ![](https://i.postimg.cc/cC2QXCSH/Untitled330-20240228232027.png)
