@@ -4,7 +4,7 @@
 
 <p align="center">Not a kin / irl dont refer to me as such</p>
 
-<p align="center">Read my bundlr & sign my guestbook its sick as hell </p>
+<p align="center">Friend me on spacehey & sign my guestbook its sick as hell </p>
 
 <p align="center">Proship / freaks dni </p>
 
