@@ -2,7 +2,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ultjake&color=1f9400)
 
-### 　　　　　　　　　　　　　　I have a strawpage now!! Send me stuff please... :P 
+### 　　　　　　　　　　　　　　I have a [strawpage](https://boxconsumer89.straw.page/) now!! Send me stuff please... :P 
 
 
 
