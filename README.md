@@ -2,6 +2,10 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ultjake&color=1f9400)
 
+### 　　　　　　　　　　　　　　I have a strawpage now!! Send me stuff please... :P 
+
+
+
 <p align="center">Cuddle + hide + whisper / interact + inspo is always okay. I dont bite</p>
 
 <p align="center">Not a kin / irl dont refer to me as such</p>
