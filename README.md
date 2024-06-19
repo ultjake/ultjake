@@ -1,6 +1,6 @@
 ![here](https://i.postimg.cc/B6pMD64L/Untitled501-20240618221119.png)
 
-　　　　　　　　　　　　　　　　![Main image](https://i.postimg.cc/sxrvhtpv/ezgif-1-db6bc3e100.gif)
+　　　　　　　　　　　　　　　　　　　　　　![Main image](https://i.postimg.cc/sxrvhtpv/ezgif-1-db6bc3e100.gif)
 
 <p align="center"> ︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　　 </p>
 
