@@ -4,7 +4,9 @@
 
 <p align="center"> ︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　　 </p>
 
-<p align="center"> Click my links or ELSE. </p>
+<p align="center">	⃕ ♡  　　C　+　h　+　int　+　inspo always ok!  　　♡	⃕ 		 </p>
+
+<p align="center">	⃕ ♡  　　Check out my links pretty please. ^_^  　　♡	⃕ 		 </p>
 
 <p align="center"> ︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　　 </p>
 
