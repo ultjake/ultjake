@@ -1,21 +1,15 @@
-![](https://i.postimg.cc/NMvSPGQd/Untitled330-20240228232023.png)
+![here](https://i.postimg.cc/B6pMD64L/Untitled501-20240618221119.png)
+***
 
-　　　　　　　　　　　　　　　　 　　 　　　　　　　　　![](https://komarev.com/ghpvc/?username=ultjake&color=1f9400)
+　　　　　　　　　　　　　　　　![Main image](https://i.postimg.cc/d0x2rSfF/ezgif-1-0c94953490.gif)
 
-### 　　　　　　 　　 　 　　　　　　　　Working on a better layout gang. 
+<p align="center"> ︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　　 </p>
 
+<p align="center"> Wip still umm test hi if you see this no you dont </p>
 
+<p align="center"> ◠　⁔　◠　⁔　◠　⁔　◠　⁔　◠　⁔　◠　⁔　◠　　 </p>
 
-<p align="center">Cuddle + hide + whisper / interact + inspo is always okay. I dont bite</p>
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ultjake&color=1f9400)
 
-<p align="center">Not a kin / irl dont refer to me as such</p>
-
-<p align="center">Friend me on spacehey & sign my guestbook its sick as hell </p>
-
-<p align="center">Proship / freaks dni </p>
-
-<p align="center"> @ultdirk smells like BO and salt water. </p>
-
-　　　　　　　　　　　　　　　　　　　　　　　　　![](https://64.media.tumblr.com/31019cec5fda099519c3e6829ff253d2/5fed3d4ee40f3b6a-fd/s1280x1920/931dde43aeaa5dc0c847e465c050c8fa259b9d74.gifv)
-
-![](https://i.postimg.cc/cC2QXCSH/Untitled330-20240228232027.png)
+***
+![here](https://i.postimg.cc/wMBFkpjW/Untitled501-20240618221136.png)
