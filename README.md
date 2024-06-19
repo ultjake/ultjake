@@ -6,6 +6,8 @@
 
 <p align="center">	⃕ ♡  　　C　+　h　+　int　+　inspo always ok!  　　♡	⃕ 		 </p>
 
+<p align="center">	⃕ ♡  　　Not　rp　/　kin　/　irl  　　♡	⃕ 		 </p>
+
 <p align="center">	⃕ ♡  　　Check out my links pretty please. ^_^  　　♡	⃕ 		 </p>
 
 <p align="center"> ︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　‿　︶　　 </p>
